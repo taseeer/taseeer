@@ -4,7 +4,7 @@
 
 🌱 I’m currently learning more about advanced security concepts and technologies.
 
-💞️ I’m looking to collaborate on projects related to School Management Systems and security-focused initiatives.
+
 
 📫 How to reach me: Feel free to contact me via  connect on [LinkedIn](https://www.linkedin.com/posts/taseer-ullah-8b4461255_pmlaptopscheme2023-gratitude-highereducation-activity-7131635155852570624-Hubj?utm_source=share&utm_medium=member_android )).
 
